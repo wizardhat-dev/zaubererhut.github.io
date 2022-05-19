@@ -1,4 +1,3 @@
-by:
 ## Meta
 
 LinkedIn – [@Hendrik Demir](https://www.linkedin.com/in/hendrik-demir/)
